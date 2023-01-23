@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mehtamanoj
 - 👀 I’m Web/app developer
-- 🌱 I’m Co-Founder of @loopncode
+- 🌱 I’m Co-Founder of @hybridplus
 - 💞️ I’m looking for work
 - 📫 manojmht45@gmail.com
 
